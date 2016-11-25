@@ -1,1 +1,1 @@
-# [www.afluy.site](www.afluy.site)
+# [www.afluy.site](http://www.afluy.site)
